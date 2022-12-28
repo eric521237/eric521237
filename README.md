@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning (handpan/ c language wait)
 - 💞️ I’m looking to collaborate on ... study together 
 - 📫 How to reach me ...  u can add me twitter
+- All of projects are  a lot of personal java that... 
 HOLD ON!
 
 
